@@ -185,97 +185,116 @@ A. Sie kannte die Stadt nicht und hatte niemanden dort
 B. Sie hatte kein Geld für die Wohnung
 C. Sie wollte ihre Familie nicht verlassen
 D. Sie war krank
-2. Wie kann man Marias Entscheidung, nach Hamburg zu ziehen, am besten beschreiben?
+
+3. Wie kann man Marias Entscheidung, nach Hamburg zu ziehen, am besten beschreiben?
 A. Impulsiv
 B. Vernünftig und zielorientiert
 C. Rückständig
 D. Unüberlegt
-3. Welche Funktion erfüllt Lena in Marias Leben?
+
+5. Welche Funktion erfüllt Lena in Marias Leben?
 A. Mentor und Freundin
 B. Arbeitskollegin
 C. Fremde
 D. Lehrerin
-4. Was zeigt, dass Maria selbstständig werden wollte?
+
+7. Was zeigt, dass Maria selbstständig werden wollte?
 A. Sie machte viele Spaziergänge
 B. Sie nahm die Leitung eines Projektes an
 C. Sie trank Kaffee jeden Morgen
 D. Sie lernte die Stadt kennen
-5. Warum war das Treffen mit dem Kunden wichtig?
+
+9. Warum war das Treffen mit dem Kunden wichtig?
 A. Es war eine formelle Pflicht
 B. Der Kunde hatte vorherige Beschwerden
 C. Maria konnte ihre Fähigkeiten unter Beweis stellen
 D. Es war ein Freizeitprojekt
-6. Welcher Satz beschreibt Marias Umgang mit Problemen?
+
+11. Welcher Satz beschreibt Marias Umgang mit Problemen?
 A. Sie vermeidet Schwierigkeiten
 B. Sie bleibt ruhig und sucht Lösungen
 C. Sie überlässt alles den Kollegen
 D. Sie gibt sofort auf
-7. Welche Rolle spielt Hamburg in der Geschichte?
+
+13. Welche Rolle spielt Hamburg in der Geschichte?
 A. Symbol für Marias Herausforderungen und Chancen
 B. Nur der Ort der Handlung ohne Bedeutung
 C. Symbol für Marias Familie
 D. Symbol für Langeweile
-8. Wie verändert sich Marias Selbstbewusstsein im Laufe der Geschichte?
+
+15. Wie verändert sich Marias Selbstbewusstsein im Laufe der Geschichte?
 A. Sie wird unsicherer
 B. Sie bleibt gleich
 C. Sie wächst durch neue Erfahrungen und Verantwortung
 D. Sie verliert Motivation
-9. Welches Wort beschreibt Marias Gefühle, als sie die Teamleitung übernahm?
+
+17. Welches Wort beschreibt Marias Gefühle, als sie die Teamleitung übernahm?
 A. Gelassen
 B. Überwältigt
 C. Gleichgültig
 D. Ignorant
-10. Was zeigt, dass Maria ein gutes Verhältnis zu ihrem Team hat?
+
+19. Was zeigt, dass Maria ein gutes Verhältnis zu ihrem Team hat?
 A. Sie ignoriert ihre Kollegen
 B. Sie organisiert Meetings gemeinsam und arbeitet kooperativ
 C. Sie macht alles alleine
 D. Sie kritisiert ihre Kollegen ständig
-11. Welche Bedeutung hat die Szene an der Elbe am Ende?
+
+21. Welche Bedeutung hat die Szene an der Elbe am Ende?
 A. Sie zeigt Marias Entspannung und Reflexion über Wachstum
 B. Sie dient nur als romantische Szene
 C. Sie ist unwichtig für die Handlung
 D. Sie zeigt, dass Maria unglücklich ist
-12. Welche Aussage über Fehler ist korrekt laut Geschichte?
+
+23. Welche Aussage über Fehler ist korrekt laut Geschichte?
 A. Fehler sind peinlich und sollten vermieden werden
 B. Fehler helfen beim Lernen und sind Teil des Wachstums
 C. Fehler führen zum Scheitern
 D. Fehler bedeuten, dass man nicht geeignet ist
-13. Was impliziert die Geschichte über Freundschaft?
+
+25. Was impliziert die Geschichte über Freundschaft?
 A. Freundschaft ist nur für die Freizeit wichtig
 B. Freundschaft unterstützt persönliche und berufliche Entwicklung
 C. Freundschaft ist optional
 D. Freundschaft verursacht Probleme
-14. Welches Stilmittel wird in der Geschichte oft genutzt?
+
+27. Welches Stilmittel wird in der Geschichte oft genutzt?
 A. Metaphern für Herausforderungen und Gefühle
 B. Dialoge nur zwischen Kollegen
 C. Lange, unverständliche Beschreibungen
 D. Keine Stilmittel
-15. Warum ist Marias Projekt ein Wendepunkt in der Geschichte?
+
+29. Warum ist Marias Projekt ein Wendepunkt in der Geschichte?
 A. Sie lernt neue Stadtwege kennen
 B. Sie zeigt Führungsqualitäten und wächst über sich hinaus
 C. Sie trifft Lena
 D. Sie bekommt Urlaub
-16. Welche Schlussfolgerung lässt sich über Marias Charakter ziehen?
+
+31. Welche Schlussfolgerung lässt sich über Marias Charakter ziehen?
 A. Sie ist passiv und wartet auf Chancen
 B. Sie ist mutig, lernbereit und verantwortungsbewusst
 C. Sie ist überheblich
 D. Sie ist faul
-17. Warum betont die Geschichte Marias anfängliche Einsamkeit?
+
+33. Warum betont die Geschichte Marias anfängliche Einsamkeit?
 A. Um die Bedeutung von Freundschaft und Integration zu zeigen
 B. Um Langeweile zu erzeugen
 C. Um die Stadt schlecht darzustellen
 D. Um die Arbeit uninteressant zu machen
-18. Welche Aussage über Marias berufliches Wachstum ist korrekt?
+
+35. Welche Aussage über Marias berufliches Wachstum ist korrekt?
 A. Sie wird sofort erfolgreich ohne Probleme
 B. Sie lernt durch Praxis, Fehler und Unterstützung
 C. Sie scheitert immer
 D. Sie arbeitet nur alleine
-19. Was zeigt Marias Umgang mit dem unzufriedenen Kunden?
+
+37. Was zeigt Marias Umgang mit dem unzufriedenen Kunden?
 A. Sie wird defensiv und gibt auf
 B. Sie sucht proaktiv Lösungen und bleibt professionell
 C. Sie ignoriert das Problem
 D. Sie beschuldigt Lena
-20. Welche Botschaft vermittelt die Geschichte insgesamt?
+
+39. Welche Botschaft vermittelt die Geschichte insgesamt?
 A. Veränderungen und Herausforderungen führen zu persönlichem Wachstum
 B. Veränderungen sind gefährlich und sollten vermieden werden
 C. Freundschaft ist unwichtig
