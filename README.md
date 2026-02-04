@@ -299,3 +299,87 @@ A. Veränderungen und Herausforderungen führen zu persönlichem Wachstum
 B. Veränderungen sind gefährlich und sollten vermieden werden
 C. Freundschaft ist unwichtig
 D. Arbeit macht nur Stress
+
+
+📘 C1 Multiple Choice Questions
+1. Warum wird Marias Umzug nach Hamburg nicht nur als geographische Veränderung dargestellt?
+A. Er symbolisiert ihren beruflichen Aufstieg
+B. Er dient nur der Handlung
+C. Er stellt ihre persönliche Entwicklung und Selbstständigkeit dar
+D. Er zeigt die Stadt als gefährlich
+2. Welche Aussage beschreibt Marias psychologische Entwicklung am besten?
+A. Sie bleibt passiv und wartet auf äußere Hilfe
+B. Sie entwickelt Resilienz und Eigeninitiative
+C. Sie ignoriert Probleme und hofft auf Glück
+D. Sie reagiert impulsiv und emotional
+3. Warum wird Lena als Figur eingeführt?
+A. Nur um Dialoge zu ermöglichen
+B. Sie ist Mentor und Katalysator für Marias soziale Integration
+C. Sie dient als romantisches Interesse
+D. Sie zeigt die Konkurrenz am Arbeitsplatz
+4. Welche Funktion haben die Szenen mit dem Kunden?
+A. Sie illustrieren praktische Führungsqualitäten und Marias professionelles Wachstum
+B. Sie dienen nur als Spannungsbogen
+C. Sie sind nebensächlich
+D. Sie zeigen, dass Kunden schwierig sind
+5. Welche implizite Bedeutung hat der Sonnenuntergang an der Elbe?
+A. Er symbolisiert Ruhe und Reflexion
+B. Er ist rein dekorativ
+C. Er deutet auf zukünftige Probleme hin
+D. Er zeigt Langeweile
+6. Was vermittelt die Geschichte über den Umgang mit Fehlern?
+A. Fehler zeigen Unfähigkeit
+B. Fehler sind Lernchancen und fördern Selbstvertrauen
+C. Fehler führen zu Misserfolg
+D. Fehler sollten versteckt werden
+7. Welche Stilmittel werden häufig verwendet, um Marias innere Gefühle zu verdeutlichen?
+A. Direkte Rede, Reflexionen und bildhafte Beschreibungen
+B. Nur direkte Rede
+C. Lange Monologe ohne Emotion
+D. Ironie und Sarkasmus
+8. Warum wird Hamburg detailliert beschrieben?
+A. Um Maria als Person in Kontrast zu ihrer Umgebung zu setzen
+B. Nur um Touristeninformationen zu geben
+C. Um die Stadt als Bedrohung darzustellen
+D. Um den Plot künstlich zu verlängern
+9. Welche Wirkung haben die beruflichen Herausforderungen auf Marias Selbstbild?
+A. Sie verunsichern sie dauerhaft
+B. Sie stärken ihre Selbstwahrnehmung und Verantwortungsbewusstsein
+C. Sie machen sie arrogant
+D. Sie bewirken Resignation
+10. Welche Aussage zu Freundschaft und sozialen Netzwerken ist korrekt?
+A. Freundschaft ist nur privat relevant
+B. Freundschaft unterstützt persönliches und berufliches Wachstum
+C. Freundschaft ist eine Ablenkung von Arbeit
+D. Freundschaft wird negativ dargestellt
+11. Welche Botschaft vermittelt die Geschichte über die Rolle von Kommunikation?
+A. Kommunikation ist nur für beruflichen Erfolg notwendig
+B. Offene und respektvolle Kommunikation erleichtert Problemlösung und Integration
+C. Kommunikation ist irrelevant
+D. Kommunikation führt zu Konflikten
+12. Warum fühlt sich Maria zunächst einsam, obwohl sie in einer großen Stadt lebt?
+A. Die Stadt ist feindlich
+B. Sie hat noch keine sozialen Kontakte aufgebaut
+C. Sie ist unzufrieden mit der Arbeit
+D. Sie vermisst die Natur
+13. Welche Rolle spielt der Konflikt mit dem unzufriedenen Kunden auf der narrativen Ebene?
+A. Spannungsaufbau
+B. Möglichkeit für Charakterentwicklung und Demonstration von Führungskompetenz
+C. Zufälliges Ereignis ohne Bedeutung
+D. Comic Relief
+14. Wie wird Marias Umgang mit Stress beschrieben?
+A. Sie verliert die Kontrolle
+B. Sie analysiert Situationen und reagiert reflektiert
+C. Sie ignoriert Stress
+D. Sie überträgt Verantwortung
+15. Welche Aussage zu Marias Motivation ist zutreffend?
+A. Sie handelt ausschließlich aus Angst
+B. Sie handelt proaktiv und sucht Wachstumsmöglichkeiten
+C. Sie wartet auf äußere Anweisungen
+D. Sie handelt zufällig
+16. Welche Rolle spielt die Stadt Hamburg im narrativen Aufbau?
+A. Hintergrund ohne Einfluss
+B. Spiegel für Marias persönliche und berufliche Herausforderungen
+C. Antagonist
+D. Nur geografische Referenz
+17. Welche Wirkung hat die wiederholte Bezugnahme auf die Elbe und Sonnenuntergänge?
