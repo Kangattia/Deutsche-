@@ -178,7 +178,7 @@ C. Müde
 D. Verwirrt
 
 
-📘 B2 
+📘 B2 Niveau 
 
 1. Warum hatte Maria anfangs Angst vor dem Umzug?
 A. Sie kannte die Stadt nicht und hatte niemanden dort
