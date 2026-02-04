@@ -40,9 +40,15 @@ Zu Marias Überraschung bot ihr Chef ihr die Leitung eines kleinen Teams an. Zue
 
 
 In den folgenden Wochen arbeitete Maria sehr intensiv. Sie musste Meetings planen, Aufgaben verteilen und mit Kunden sprechen. Manchmal fühlte sie sich gestresst, besonders wenn Probleme auftauchten. Doch sie lernte, ruhig zu bleiben und Lösungen zu finden.
+
+
 Zum Glück unterstützten ihre Kollegen sie. Auch Lena half ihr oft, indem sie ihr Mut machte und ihr zuhörte, wenn Maria über ihre Sorgen sprach. An den Wochenenden versuchten die beiden Freundinnen, sich zu entspannen. Sie gingen spazieren, kochten zusammen oder sahen Filme.
+
+
 Eines Tages gab es ein großes Problem im Projekt. Ein wichtiger Kunde war mit einem Teil der Arbeit unzufrieden. Maria war zunächst geschockt, aber sie beschloss, sofort zu handeln. Sie organisierte ein Treffen mit ihrem Team, um die Situation zu besprechen. Gemeinsam fanden sie heraus, wo der Fehler lag, und entwickelten einen neuen Plan.
 Maria kontaktierte den Kunden persönlich und erklärte die Lösung ruhig und professionell. Der Kunde war beeindruckt von ihrer Ehrlichkeit und ihrem Engagement. Am Ende war er wieder zufrieden mit der Zusammenarbeit.
+
+
 Nach diesem Ereignis erkannte Maria, dass sie viel stärker geworden war. Sie hatte gelernt, Verantwortung zu übernehmen und auch in schwierigen Situationen ruhig zu bleiben.
 An einem Abend traf sie sich wieder mit Lena an der Elbe. Während sie den Sonnenuntergang beobachteten, erzählte Maria von ihren Erfahrungen. Sie sagte: „Früher hatte ich Angst vor Fehlern. Jetzt weiß ich, dass man aus Fehlern lernen kann.“
 Lena lächelte und antwortete: „Genau. Fehler zeigen uns oft den richtigen Weg.“
