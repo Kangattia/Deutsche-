@@ -1,5 +1,5 @@
 ..# Deutsche-
-i realised i still got much work to improve my work. you can contribute here with something. German is difficult. working on getting it more perfect . stil has alot to add
+i realised i still got much work to improve my work. you can contribute here with something. German is difficult. working on getting it more perfect . stil has alot to
 
 
 
