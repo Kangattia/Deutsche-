@@ -31,8 +31,14 @@ Lena nickte und antwortete: „Manchmal muss man etwas Riskantes tun, um neue Ch
 Maria wusste, dass sie noch viele Herausforderungen vor sich hatte. Doch diesmal hatte sie keine Angst mehr, sondern freute sich auf alles, was noch kommen würde.
 
 Einige Monate nach ihrem Umzug hatte Maria sich gut an das Leben in Hamburg gewöhnt. Sie kannte inzwischen viele Wege in der Stadt und fühlte sich sicherer bei ihrer Arbeit. Trotzdem wusste sie, dass sie sich weiter verbessern musste, wenn sie erfolgreich sein wollte.
+
+
 Eines Morgens rief ihr Chef sie in sein Büro. Maria war etwas nervös, weil sie nicht wusste, worum es ging. Ihr Chef lächelte jedoch freundlich und erklärte ihr, dass die Firma ein neues internationales Projekt bekommen hatte. Das Projekt sollte mit Kunden aus verschiedenen Ländern durchgeführt werden. Deshalb brauchte das Team jemanden, der gut organisiert war und Verantwortung übernehmen konnte.
+
+
 Zu Marias Überraschung bot ihr Chef ihr die Leitung eines kleinen Teams an. Zuerst wusste Maria nicht, was sie sagen sollte. Sie freute sich über das Vertrauen, hatte aber auch Angst vor der großen Verantwortung. Nach kurzem Nachdenken entschied sie sich, die Herausforderung anzunehmen.
+
+
 In den folgenden Wochen arbeitete Maria sehr intensiv. Sie musste Meetings planen, Aufgaben verteilen und mit Kunden sprechen. Manchmal fühlte sie sich gestresst, besonders wenn Probleme auftauchten. Doch sie lernte, ruhig zu bleiben und Lösungen zu finden.
 Zum Glück unterstützten ihre Kollegen sie. Auch Lena half ihr oft, indem sie ihr Mut machte und ihr zuhörte, wenn Maria über ihre Sorgen sprach. An den Wochenenden versuchten die beiden Freundinnen, sich zu entspannen. Sie gingen spazieren, kochten zusammen oder sahen Filme.
 Eines Tages gab es ein großes Problem im Projekt. Ein wichtiger Kunde war mit einem Teil der Arbeit unzufrieden. Maria war zunächst geschockt, aber sie beschloss, sofort zu handeln. Sie organisierte ein Treffen mit ihrem Team, um die Situation zu besprechen. Gemeinsam fanden sie heraus, wo der Fehler lag, und entwickelten einen neuen Plan.
