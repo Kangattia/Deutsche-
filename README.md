@@ -1,5 +1,5 @@
 ..# Deutsche-
-i realised i still got much work to improve my work. you can contribute here with somet
+i realised i still got much work to improve my work. you can contribute here with some
 
 
 
