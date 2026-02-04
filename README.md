@@ -53,3 +53,126 @@ Nach diesem Ereignis erkannte Maria, dass sie viel stärker geworden war. Sie ha
 An einem Abend traf sie sich wieder mit Lena an der Elbe. Während sie den Sonnenuntergang beobachteten, erzählte Maria von ihren Erfahrungen. Sie sagte: „Früher hatte ich Angst vor Fehlern. Jetzt weiß ich, dass man aus Fehlern lernen kann.“
 Lena lächelte und antwortete: „Genau. Fehler zeigen uns oft den richtigen Weg.“
 Maria sah auf das Wasser und dachte darüber nach, wie sehr sich ihr Leben in kurzer Zeit verändert hatte. Sie war stolz auf sich und gespannt auf die Zukunft.
+
+
+📘 Multiple Choice Fragen B1 Niveau 
+
+1. Warum zog Maria nach Hamburg?
+A. Sie wollte Urlaub machen
+B. Sie wollte neue Erfahrungen sammeln
+C. Sie wollte ihre Familie besuchen
+D. Sie wollte studieren
+
+3. Wie fühlte sich Maria in den ersten Tagen?
+A. Sehr glücklich
+B. Wütend
+C. Einsam
+D. Gelangweilt
+
+5. Wo lernte Maria Lena kennen?
+A. Im Park
+B. Im Café
+C. Im Kino
+D. Im Museum
+
+7. Was arbeitet Lena?
+A. Lehrerin
+B. Ärztin
+C. Grafikdesignerin
+D. Verkäuferin
+
+9. Welche Interessen haben Maria und Lena gemeinsam?
+A. Sport und Kochen
+B. Bücher, Musik und Reisen
+C. Tanzen und Schwimmen
+D. Autofahren und Fotografieren
+
+11. Wo begann Maria zu arbeiten?
+A. In einer Schule
+B. In einem Krankenhaus
+C. In einer Marketingfirma
+D. In einem Restaurant
+
+13. Warum war die Arbeit am Anfang schwierig für Maria?
+A. Sie hatte keine Kollegen
+B. Alles war neu
+C. Sie mochte den Job nicht
+D. Sie musste reisen
+
+15. Was musste Maria für einen wichtigen Kunden vorbereiten?
+A. Eine Präsentation
+B. Ein Buch
+C. Ein Konzert
+D. Ein Video
+
+17. Wie reagierte der Kunde auf Marias Präsentation?
+A. Er war unzufrieden
+B. Er war verwirrt
+C. Er war sehr zufrieden
+D. Er war wütend
+
+19. Wo sitzen Maria und Lena oft zusammen?
+A. Am Flughafen
+B. An der Elbe
+C. In der Schule
+D. Im Büro
+
+21. Was bekam Maria einige Monate später bei der Arbeit?
+A. Eine Kündigung
+B. Eine Beförderung
+C. Ein neues Büro
+D. Eine Gehaltserhöhung
+
+23. Was sollte Maria im neuen Projekt machen?
+A. Ein Buch schreiben
+B. Ein Team leiten
+C. Kunden trainieren
+D. Werbung filmen
+
+25. Wie fühlte sich Maria, als sie die neue Verantwortung bekam?
+A. Nur glücklich
+B. Nur traurig
+C. Glücklich und nervös
+D. Gleichgültig
+
+27. Was musste Maria im Projekt organisieren?
+A. Partys
+B. Meetings und Aufgaben
+C. Reisen
+D. Sportaktivitäten
+
+29. Wer unterstützte Maria emotional?
+A. Ihr Chef
+B. Lena
+C. Ihre Kunden
+D. Ihre Nachbarn
+
+31. Was passierte mit einem wichtigen Kunden im Projekt?
+A. Der Kunde war sehr zufrieden
+B. Der Kunde war unzufrieden
+C. Der Kunde kündigte den Vertrag
+D. Der Kunde zog um
+
+33. Wie reagierte Maria auf das Problem?
+A. Sie ignorierte es
+B. Sie kündigte ihren Job
+C. Sie organisierte ein Teamtreffen
+D. Sie beschuldigte ihre Kollegen
+
+35. Was lernte Maria aus dieser schwierigen Situation?
+A. Arbeit ist langweilig
+B. Fehler sind gefährlich
+C. Man kann aus Fehlern lernen
+D. Kunden sind unwichtig
+
+37. Wo sprechen Maria und Lena über ihre Erfahrungen?
+A. Im Zug
+B. An der Elbe
+C. In einem Hotel
+D. Im Kino
+
+39. Wie fühlt sich Maria am Ende der Geschichte?
+A. Verängstigt
+B. Stolz und hoffnungsvoll
+C. Müde
+D. Verwirrt
