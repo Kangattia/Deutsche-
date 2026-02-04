@@ -1,5 +1,5 @@
 # Deutsche-
-i realised i still got much work to improve my work
+i realised i still got much work to improve my work. my germzn isn't the best now
 
 
 
