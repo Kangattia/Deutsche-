@@ -331,59 +331,60 @@ A. Er symbolisiert Ruhe und Reflexion
 B. Er ist rein dekorativ
 C. Er deutet auf zukünftige Probleme hin
 D. Er zeigt Langeweile
-10. Was vermittelt die Geschichte über den Umgang mit Fehlern?
+
+11. Was vermittelt die Geschichte über den Umgang mit Fehlern?
 A. Fehler zeigen Unfähigkeit
 B. Fehler sind Lernchancen und fördern Selbstvertrauen
 C. Fehler führen zu Misserfolg
 D. Fehler sollten versteckt werden
-11. Welche Stilmittel werden häufig verwendet, um Marias innere Gefühle zu verdeutlichen?
+12. Welche Stilmittel werden häufig verwendet, um Marias innere Gefühle zu verdeutlichen?
 A. Direkte Rede, Reflexionen und bildhafte Beschreibungen
 B. Nur direkte Rede
 C. Lange Monologe ohne Emotion
 D. Ironie und Sarkasmus
-12. Warum wird Hamburg detailliert beschrieben?
+13. Warum wird Hamburg detailliert beschrieben?
 A. Um Maria als Person in Kontrast zu ihrer Umgebung zu setzen
 B. Nur um Touristeninformationen zu geben
 C. Um die Stadt als Bedrohung darzustellen
 D. Um den Plot künstlich zu verlängern
-13. Welche Wirkung haben die beruflichen Herausforderungen auf Marias Selbstbild?
+14. Welche Wirkung haben die beruflichen Herausforderungen auf Marias Selbstbild?
 A. Sie verunsichern sie dauerhaft
 B. Sie stärken ihre Selbstwahrnehmung und Verantwortungsbewusstsein
 C. Sie machen sie arrogant
 D. Sie bewirken Resignation
-14. Welche Aussage zu Freundschaft und sozialen Netzwerken ist korrekt?
+15. Welche Aussage zu Freundschaft und sozialen Netzwerken ist korrekt?
 A. Freundschaft ist nur privat relevant
 B. Freundschaft unterstützt persönliches und berufliches Wachstum
 C. Freundschaft ist eine Ablenkung von Arbeit
 D. Freundschaft wird negativ dargestellt
-15. Welche Botschaft vermittelt die Geschichte über die Rolle von Kommunikation?
+16. Welche Botschaft vermittelt die Geschichte über die Rolle von Kommunikation?
 A. Kommunikation ist nur für beruflichen Erfolg notwendig
 B. Offene und respektvolle Kommunikation erleichtert Problemlösung und Integration
 C. Kommunikation ist irrelevant
 D. Kommunikation führt zu Konflikten
-16. Warum fühlt sich Maria zunächst einsam, obwohl sie in einer großen Stadt lebt?
+17. Warum fühlt sich Maria zunächst einsam, obwohl sie in einer großen Stadt lebt?
 A. Die Stadt ist feindlich
 B. Sie hat noch keine sozialen Kontakte aufgebaut
 C. Sie ist unzufrieden mit der Arbeit
 D. Sie vermisst die Natur
-17. Welche Rolle spielt der Konflikt mit dem unzufriedenen Kunden auf der narrativen Ebene?
+18. Welche Rolle spielt der Konflikt mit dem unzufriedenen Kunden auf der narrativen Ebene?
 A. Spannungsaufbau
 B. Möglichkeit für Charakterentwicklung und Demonstration von Führungskompetenz
 C. Zufälliges Ereignis ohne Bedeutung
 D. Comic Relief
-18. Wie wird Marias Umgang mit Stress beschrieben?
+19. Wie wird Marias Umgang mit Stress beschrieben?
 A. Sie verliert die Kontrolle
 B. Sie analysiert Situationen und reagiert reflektiert
 C. Sie ignoriert Stress
 D. Sie überträgt Verantwortung
-19. Welche Aussage zu Marias Motivation ist zutreffend?
+20. Welche Aussage zu Marias Motivation ist zutreffend?
 A. Sie handelt ausschließlich aus Angst
 B. Sie handelt proaktiv und sucht Wachstumsmöglichkeiten
 C. Sie wartet auf äußere Anweisungen
 D. Sie handelt zufällig
-20. Welche Rolle spielt die Stadt Hamburg im narrativen Aufbau?
+21. Welche Rolle spielt die Stadt Hamburg im narrativen Aufbau?
 A. Hintergrund ohne Einfluss
 B. Spiegel für Marias persönliche und berufliche Herausforderungen
 C. Antagonist
 D. Nur geografische Referenz
-21. Welche Wirkung hat die wiederholte Bezugnahme auf die Elbe und Sonnenuntergänge?
+22. Welche Wirkung hat die wiederholte Bezugnahme auf die Elbe und Sonnenuntergänge?
